@@ -1,9 +1,1 @@
-App Name: Hyper Email Lite
-Developer: universal-developer23
-App Benefits: An electronic Hardware Global Radio software Launchpad
-Range  of Coverage: Global
-App Source: valid.com.c@gmail.com
-OS Name: Program Operating System
-Current Usage: Ecobank Nigeria
-Current status: Globally dynamic and Up to Date Internet Server
-App Highlights: HYper EMAIL LITE can remotely control any electronic hardware located anywhere in the world, with 100% anonymous success
+Samuel Ebenezer is the principal partner at "House of Heritage Equipment Enterprise" RC-3225257...with Headquaters in owerri, Imo State Nigeria...He ia a sofware developer, web designer. online radio programmer, Satelite TV Programmer and has recently developed an electrmagnetic Pulse Radio Station on blogger www.rf-band.blogspot.com using awindows operating system email microsoft.com.c@gmail.com. He is available for all kinds of digital signal programming...you can mail him directly om valid.com.c@gmail.com or program.files.c@gmail.com. 
